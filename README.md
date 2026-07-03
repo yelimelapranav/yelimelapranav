@@ -235,3 +235,14 @@ JavaScript
 ⭐ Thanks for visiting my profile ⭐
 
 </div>
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+          YELIMELA PRANAV
+
+Artificial Intelligence & Machine Learning
+
+Python • Deep Learning • Computer Vision
+Software Development • AI Engineer
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
